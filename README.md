@@ -811,6 +811,15 @@ Three big mistakes I see on pulldowns:
 
 Most of these come from either using too much weight, not being meticulous enough about technique, or both. If you want the most out of lat pulldowns, lower the weight and go for QUALITY. Save the heavy weights for weighted pull-ups and rows instead!
 
+#### https://www.instagram.com/p/BS3y-3Dj40a/
+
+I'm tired of lat pulldowns being butchered.
+
+While most exercises can be utilized for any number of goals depending on volume, load, and other such variables being altered, some exercises are not optimally suited for some training goals.
+
+The bent row, pull-up, and their variations are great for heavy resistance and high forces. But if being done for very high reps (15+ range), technical breakdowns via fatiguing supporting musculature can lead to lowered effectiveness and increased injury probabilities. On the other hand, exercises like the lat pulldown offer a more isolated stimulus to the upper back, and can be safely done with higher reps.
+
+So when doing lat pulldowns, take the opportunity to go through a range of motion not possibly for most in pull-ups (all the way to the chest) and get those quality reps in instead of heaving weight. Cause if you wanna heave weight (with good technique, of course), pull-ups and bent rows are there waiting! The video here is of a working set of mine... it's not just a demo with light weight... this is how I do them in actual training (full stretch, touching the chest at the bottom, keeping the chest up to get more contraction from the upper back). Give this technique a shot and you might like the results!
 ## Posterior Chain
 
 ### Glute Training for Muscle Size/Bodybuilding
