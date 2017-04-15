@@ -158,6 +158,15 @@ In long term fat loss, the hard part isn't always pushing yourself at any one ti
 
 ## General Training
 
+### Starting Out
+
+If you're just starting working out for the first time (or in a long time), you might feel tempted to 'jump in' and begin a program of 5x a week exercise first thing in the morning.
+And for some people, that works. But for many, it's too much, too soon, and too big of an initial burden on schedules and sleep.
+
+If you're just starting out, try 3 days a week and at regular times that work BEST for your schedule. And if you like it a ton... you can always ease in to doing more!
+
+Just remember, fitness is a long term process... there's almost never a rush to get fit super soon.
+
 ### Mesocycle Design for Hypertrophy
 
 #### Volume
